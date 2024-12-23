@@ -1,0 +1,1 @@
+# tyt-beceri-temelli-fizik-32
